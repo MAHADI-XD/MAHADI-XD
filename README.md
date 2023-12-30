@@ -14,6 +14,11 @@ Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>𝗠𝗔�
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=36&pause=1000&color=F7F7F7&background=000000&random=false&width=435&lines=MAHADI+HASAN+AFRIDI;IT'S+NOT+A+NAME%F0%9F%A4%8D;IT'S+BRAND+BROTHER..)](https://git.io/typing-svg)
 
+### Profile Visitors
+ 
+![visitor badge](https://visitor-badge.glitch.me/badge?page_id=MAHADI-XD.visitor-badge&left_color=blue&right_color=yellow)
+<br />
+
 <div align="center">
   <h3> ☄️THANKS FOR VISIT☄️ </h3>
 </div>
