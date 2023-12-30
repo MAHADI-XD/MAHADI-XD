@@ -2,7 +2,7 @@
 <center>
  
 <a href="https://Instagram.com/mahadi_oo" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="40" height="40"></a> 
-<a href="https://www.facebook.com/M4HADI.143" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/facebook.png" alt="alt text" width="40" height="40"></a> <a href="https://youtube.com/MrError69"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/youtube.png" alt="alt text" width="40" height="40"></a> 
+<a href="https://www.facebook.com/M4HADI.143" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/facebook.png" alt="alt text" width="40" height="40"></a> <a href="https://youtube.com/@MAHADI-143?si=C5s1Ojlb9NT7dkYO"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/youtube.png" alt="alt text" width="40" height="40"></a> 
 
 __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
  
