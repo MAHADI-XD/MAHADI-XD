@@ -1,4 +1,4 @@
-<img src="https://github.com/MAHADI-XD/TEST/blob/main/IMG_20231230_121303.jpg" width="120" height="120" align="left">
+<img src="https://github.com/MAHADI-XD/TEST/blob/main/IMG_20231230_121303.jpg" width="125" height="125" align="left">
 <center>
  
 <a href="https://Instagram.com/mahadi_oo" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="40" height="40"></a> 
