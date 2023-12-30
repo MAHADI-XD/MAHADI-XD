@@ -1,16 +1,34 @@
-### Hi there 👋
 
-<!--
-**MAHADI-XD/MAHADI-XD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://github.com/MAHADI-XD/TEST/blob/main/IMG_20231230_121303.jpg" width="120" height="120" align="left">
+<center>
+  
+  
+  
+   ## * MY SOCIAL MEDIA : <br>
+<a href="https://Instagram.com/mahadi_oo" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="38" height="38"></a> 
+<a href="https://www.facebook.com/M4HADI.143" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/facebook.png" alt="alt text" width="38" height="38"></a> <a href="https://youtube.com/MrError69"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/youtube.png" alt="alt text" width="38" height="38"></a> 
+                         
+  
+<____Programming____>
+ 
+Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>MAHADI HASAN AFRIDI </a> ?</br><br>
+ 
+<div align="center">
+<h2> MAHADI HASAN AFRIDI IS HERE </h2>
+</div> <br>
+  
+  
+  
+ 
+<div align="center" width="50"> 
+</div>
+ 
+ [![Typing SVG](http://readme-typing-svg.herokuapp.com?color=ff0000&size=36&multiline=true&width=970&height=300&lines=Hello+there%2C+fellow+%3Chackers%2F%3E+and+%3Ccoderz%2F%3E!)](https://git.io/typing-svg)
+ 
+ 
+<div align="center">
+  <h3> THANKS FOR VISIT </h3>
+</div>
+ 
