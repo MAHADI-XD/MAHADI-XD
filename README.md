@@ -7,7 +7,7 @@
 __𝗣𝗿𝗼𝗴𝗿𝗮𝗺𝗺𝗶𝗻𝗴__🩵🩷💖💙💜🖤🩶
  
 
-Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>MAHADI HASAN AFRIDI </a> ?</br><br>
+Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>𝗠𝗔𝗛𝗔𝗗𝗜 𝗛𝗔𝗦𝗔𝗡 𝗔𝗙𝗥𝗜𝗗𝗜 </a> ?</br><br>
  
 <div align="center">
 <h2> MAHADI HASAN AFRIDI IS HERE </h2>
