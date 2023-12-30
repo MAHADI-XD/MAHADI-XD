@@ -1,6 +1,7 @@
 <img src="https://github.com/MAHADI-XD/TEST/blob/main/IMG_20231230_121303.jpg" width="100" height="100" align="left">
-<center>  
-## * MY SOCIAL MEDIA : <br>
+<center>
+ 
+# MY ACCOUNT : <br>
 <a href="https://Instagram.com/mahadi_oo" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="30" height="30"></a> 
 <a href="https://www.facebook.com/M4HADI.143" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/facebook.png" alt="alt text" width="30" height="30"></a> <a href="https://youtube.com/MrError69"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/youtube.png" alt="alt text" width="30" height="30"></a> 
                          
