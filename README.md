@@ -13,9 +13,6 @@ Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>𝗠𝗔�
 <h2> 𝗠𝗔𝗛𝗔𝗗𝗜 𝗛𝗔𝗦𝗔𝗡 𝗔𝗙𝗥𝗜𝗗𝗜 </h2>
 </div> <br>
   
-  
-  
- 
 <div align="center" width="50"> 
 </div>
  
