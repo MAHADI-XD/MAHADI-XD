@@ -12,6 +12,8 @@ Want to contact <a href="https://www.facebook.com/M4HADI.143.org"><b>𝗠𝗔�
 <h2> 𝗠𝗔𝗛𝗔𝗗𝗜 𝗛𝗔𝗦𝗔𝗡 𝗔𝗙𝗥𝗜𝗗𝗜 </h2>
 </div> <br>
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=36&pause=1000&color=F7F7F7&background=000000&random=false&width=435&lines=MAHADI+HASAN+AFRIDI;IT'S+NOT+A+NAME%F0%9F%A4%8D;IT'S+BRAND+BROTHER..)](https://git.io/typing-svg)
+
 <div align="center">
   <h3> ☄️THANKS FOR VISIT☄️ </h3>
 </div>
